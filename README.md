@@ -2,9 +2,6 @@
 
 
 
-![MaxGao0404](https://komarev.com/ghpvc/?username=MaxGao0404\&label=主页访问\&color=0e75b6\&style=flat)
-
-
 
 ***
 
